@@ -6,8 +6,8 @@
 ### DOVE加速器：
 #### [DOVE加速器-官网注册试用](https://dove8.cc/a.php?alavBTtF8UB)
 
-![高速梯子机场，免费试用](![2024-07-10 11 14 08](https://github.com/fafa88902/fafavpn/assets/174572268/60a54874-16dc-42af-a82b-47e3e6d16841)
-)
+![2024-07-10 11 14 08_副本](https://github.com/fafa88902/fafavpn/assets/174572268/76702b16-97e3-4b84-8bee-457264c8d1bf)
+
 
 为什么现在DOVE加速器：
 1：DOVE是主打稳定高速靠谱的Clash/Shadowrocket/V2Ray/ssr和ss技术的机场节点，有全球节点选择，解锁GPT,Youtue,facebook,推特（X），网飞（netflix)等流媒体。
